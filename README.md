@@ -1,4 +1,4 @@
-# johnderickdosono# 👋 Hello, I'm John Derick Dosono
+👋 Hello, I'm John Derick Dosono
 
 ### 🎓 BS Computer Science Student
 
